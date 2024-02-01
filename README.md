@@ -1,2 +1,2 @@
 # [E Learning] by Umar Saleem #
-Learn Quran online with tajweed
+Learn Quran online with tajweed.
